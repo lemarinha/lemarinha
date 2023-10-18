@@ -1,3 +1,6 @@
 - 👋 Oii, Eu sou a Marina;
-- 👀 Amo escutar Taylor Swift;
-- 🌱 Meus passatempos favoritos são: Ler, escutar músicas e aprender a se maquiar.
+- 👀 Amo escutar James Arthur.
+- 🌱 Meus passatempos favoritos são: Ler, escutar música e desenhar.
+- 📚 Meu livro favorito é A seleção.
+- 🐕 Amo meus cachorros.
+- 💞
