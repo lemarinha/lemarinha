@@ -3,4 +3,4 @@
 - 🌱 Meus passatempos favoritos são: Ler, escutar música e desenhar.
 - 📚 Meu livro favorito é A seleção.
 - 🐕 Amo meus cachorros.
-- 💞
+- 💞 Minha cor favorita é rosa.
